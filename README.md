@@ -1,2 +1,2 @@
 # Pics
-Pictures to share
+Pictures to share with nice people
